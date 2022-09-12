@@ -12,5 +12,7 @@ https://i.postimg.cc/k5ZtT1NV/DER.png
 📩 Contacto
 
 🙋‍♂️Si tienes dudas o te interesa ponerte en contacto conmigo podés hacerlo a través de: 
+
 LinkedIn: https://www.linkedin.com/in/gonzalo-agustín-rios-540784220/
+
 Gmail: gonzalo.agusrios@gmail.com
